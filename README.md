@@ -1,0 +1,2 @@
+# FUCK_NAIM
+FUCK APUN SA PANGA NHI 🖕🖕
